@@ -1,1 +1,1 @@
-# Contancts of StudyGapAI team
+# Contacts of StudyGapAI team
